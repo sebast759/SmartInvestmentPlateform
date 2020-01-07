@@ -9,11 +9,11 @@ Presentation of the unmatched high investment needs and the main features/soluti
 * RETAILS FACE OUTRAGEOUS FEES
 
 ## SMART INVESTMENT PLATEFORM
-1 THEMATICS
+1. THEMATICS
 LOW FEES / COMPLETE TO CATCH INVESTMENT OPPORTUNITIES
-2 THEMATICS +
+2. THEMATICS +
 Add a loss protection to any Thematic
-3 ALL-WEATHER SOLUTIONS
+3. ALL-WEATHER SOLUTIONS
 Long term Portfolios
 Peace of mind Solutions
 
