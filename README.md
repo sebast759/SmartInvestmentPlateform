@@ -1,5 +1,7 @@
 # DIGITAL INVESTMENT PLATFORM – ALL-WEATHER SOLUTIONS
 
+https://github.com/sebast759/SmartInvestmentPlateform/blob/master/SmartInvestmentPlateform_1P.pdf
+
 Presentation of the unmatched high investment needs and the main features/solutions of an investment plateform
 
 ## CURRENT IMBROGLIO
