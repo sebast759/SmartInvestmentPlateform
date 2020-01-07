@@ -1,4 +1,4 @@
-# DIGITAL INVESTMENT PLATFORM – ALL-WEATHER SOLUTIONS [1 pager](https://github.com/sebast759/SmartInvestmentPlateform/blob/master/SmartInvestmentPlateform_1P.pdf)
+# [DIGITAL INVESTMENT PLATFORM – ALL-WEATHER SOLUTIONS](https://github.com/sebast759/SmartInvestmentPlateform/blob/master/SmartInvestmentPlateform_1P.pdf)
 
 [1 pager](https://github.com/sebast759/SmartInvestmentPlateform/blob/master/SmartInvestmentPlateform_1P.pdf)
 
